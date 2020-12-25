@@ -1,0 +1,1 @@
+Chilaquiles, a Mexican dish consisting of strips or pieces of corn tortillas that are fried, then sautéed with green or red salsa, and topped with cheese, crema (a sweet, thin cream sauce), and onion. Pulled chicken may also be added during the cooking process, and casserole versions of the dish are popular.
